@@ -1,4 +1,9 @@
-## :333333
+artful or jean or erick
+  - i like hindia & feast
+  - i'm a devesto yumeshipper.
+   - selectively sharing btw.
+     
+  <img width="117" height="200" src="https://files.catbox.moe/kte0cm.gif">
 
 <!--
 **artfulthemagician/artfulthemagician** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
