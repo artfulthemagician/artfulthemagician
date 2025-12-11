@@ -1,21 +1,6 @@
-artful or jean or erick
-  - i like hindia & feast
-  - i'm a devesto yumeshipper.
-    - selectively sharing btw.
-     
-  <img width="117" height="200" src="https://files.catbox.moe/kte0cm.gif">
+<p align="center">jean . artful . erick</p>
+<p align="center">he any . i love hindia!</p>
+<p align="center">dyslexic && auditorypdisorder</p>
+<p align="center">" semua kau sikat miring "</p>
 
-<!--
-**artfulthemagician/artfulthemagician** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"><img width="117" height="210" src="https://files.catbox.moe/kte0cm.gif"></p>
