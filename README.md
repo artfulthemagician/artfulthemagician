@@ -1,6 +1,7 @@
-<p align="center">jean . artful . erick</p>
-<p align="center">he any . i love hindia!</p>
+<p align="center">grace . john . erick</p>
+<p align="center">he any . transmale</p>
 <p align="center">dyslexic && auditorypdisorder</p>
-<p align="center">" semua kau sikat miring "</p>
+<p align="center">main fixation is grace , projmoon & hindia</p>
 
-<p align="center"><img width="117" height="210" src="https://files.catbox.moe/kte0cm.gif"></p>
+
+<p align="center"><img width="500" height="350" src="https://file.garden/aWDVX4K_EQYw_7Gz/onthedefense.webp"></p>
